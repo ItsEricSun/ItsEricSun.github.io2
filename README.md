@@ -1,1 +1,1 @@
-# ItsEricSun2.github.io
+# ItsEricSun.github.io
